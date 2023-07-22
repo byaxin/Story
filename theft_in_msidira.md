@@ -1,1 +1,1 @@
-The story goes like this. One day in Msididra
+The story goes like this. Sometime earlier this month a theft occured in Misdira.
